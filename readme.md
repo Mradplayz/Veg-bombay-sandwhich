@@ -1,0 +1,1 @@
+veg sandwich and bombay grilled sandwich of mumbai is a favourite breakfast and evening snack recipe.veggie sandwich is a popular street food of bombay, which is mainly served with boiled potatoes and other vegetables. in addition, these sandwich also contains mumbai sandwich masala and mumbai sandwich chutney.
